@@ -1,4 +1,6 @@
  ##           ♥⁠╣⁠[⁠-⁠_⁠-⁠]⁠╠⁠♥
+	
+	
 
 
 
@@ -15,4 +17,16 @@
 
 #### My English is not the best in the world,feel free to correct me tho idm !
 
+
+
 ### Lifesteal/Unstable fans Int PLZ 
+
+
+
+## DNI IF YOU
+proshippers/darkshippers, People who hurt my friends ಠ⁠_⁠ಠ , basic criteria's really 
+
+||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
+
+---> Love @R0chetlauncher @KujoEV
+
