@@ -28,5 +28,7 @@ proshippers/darkshippers, People who hurt my friends ಠ⁠_⁠ಠ , basic crite
 
 ||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
 
----> Love @R0chetlauncher @KujoEV
+---> Love @R0CHETLAUNCHER @KujoEV @spokeglazer <--- 
+
+## (⁠つ⁠≧⁠▽⁠≦⁠)⁠つ 🍪
 
