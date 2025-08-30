@@ -1,16 +1,18 @@
-## Hi there 👋
+ ##           ♥⁠╣⁠[⁠-⁠_⁠-⁠]⁠╠⁠♥
 
-<!--
-**wemmbuglazer/wemmbuglazer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+#### Hi guys! I'm Vortex!
+
+
+
+#### I'm usually very quiet around people i don't know but feel free to int!
+
+### •_•_•_•_•_•_•_•_•_•_•_•_•••••••••••••••••••••••••••••••
+##              (⁠≧⁠▽⁠≦⁠)
+
+
+#### My English is not the best in the world,feel free to correct me tho idm !
+
+### Lifesteal/Unstable fans Int PLZ 
