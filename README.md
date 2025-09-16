@@ -7,7 +7,7 @@
        
     💜💛 " oh my sweet,sweet Wemmbu " - Princezam 
 
-    💛💜 Munity duo is the best!!!
+    💛💜 Munity duo is the best!!! ( it's platonic btw no romantic things plz... )
 
  
 
