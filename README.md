@@ -47,7 +47,7 @@
 
 ### ||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
 
-### ---> Love @R0CHETLAUNCHER @KujouEV @spokeglazer @mechanicalgaze @Orcapaint @kxhaneazusxwa @z3phyrrrrr <--- ︶ ୨♡୧ ︶  
+### ---> Love @R0CHETLAUNCHER @KujouEV @spokeglazer @mechanicalgaze @Orcapaint @kxhaneazusxwa @z3phyrrrrr @R0qu3 <--- ︶ ୨♡୧ ︶  
 
 ## (⁠つ⁠≧⁠▽⁠≦⁠)⁠つ 🍪
 
