@@ -7,9 +7,11 @@
        
     💜💛 " oh my sweet,sweet Wemmbu " - Princezam 
 
-    💛💜 Munity duo is the best!!! ( it's platonic btw no romantic things plz... )
 
- 
+
+ ![Screenshot_20250805-153956](https://github.com/user-attachments/assets/cc3e534f-ea0a-46c8-93e5-31b06145d713)
+ ⊹︶︶︶credits to ghostbakery on X︶︶︶⊹ 
+
 
 
 ### °°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°
@@ -26,11 +28,13 @@
 ### •_•_•_•_•_•_•_•_•_•_•_•_•••••••••••••••••••••••••••••••
 ##              (⁠≧⁠▽⁠≦⁠)
 
+#### Typing quirks : “ ! ” and “ ♔ ・”
 
 
 
 
 
+<⁠(⁠￣⁠︶⁠￣⁠)⁠>
 
 
 
@@ -43,9 +47,16 @@
 
 ### ||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
 
-### ---> Love @R0CHETLAUNCHER @KujouEV @spokeglazer @mechanicalgaze @Orcapaint <--- 
+### ---> Love @R0CHETLAUNCHER @KujouEV @spokeglazer @mechanicalgaze @Orcapaint @kxhaneazusxwa @z3phyrrrrr <--- ︶ ୨♡୧ ︶  
 
 ## (⁠つ⁠≧⁠▽⁠≦⁠)⁠つ 🍪
+
+
+
+sign ata btw... for yaoi!
+
+![Screenshot_20250912-204831](https://github.com/user-attachments/assets/bf324eaa-b2be-4265-bec4-28600df39919)
+
 
    
 
